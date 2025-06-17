@@ -1,3 +1,3 @@
 ---
-title: Dominick Unsworth: Resume
+title: Dominick Unsworth | Resume
 ---
